@@ -1,1 +1,0 @@
-# sanyafunt.github.io
